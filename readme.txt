@@ -1,10 +1,6 @@
 Readme
 
-
-szöveg szöveg
-
-blablablablablaa
-
-még több szöveg
-blablabalbalbala
-ablbalbalbaa
+sadnklsadklsad
+sadsiadnsakndsa
+asidnsalkndélsa
+sadiaskndkaé
